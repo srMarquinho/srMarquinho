@@ -2,4 +2,4 @@ With a diverse background, I bring extensive experience in software development,
 
 [CV (web)](https://srmarquinho.github.io/CV/)
 
-[CV (pdf)](https://drive.google.com/uc?export=download&id=1hmXhPcEUtimMKmX9QEwbdaIGsJBd86CP)
+[CV (pdf)](https://drive.google.com/uc?export=download&id=1NjGq8Lt5EfRoQbyGN1DIfW7rBgyTvMJz)
